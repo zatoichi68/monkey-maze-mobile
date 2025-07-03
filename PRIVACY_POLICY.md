@@ -32,7 +32,7 @@ The App is **not directed to children under 13**. If you are a parent or guardia
 Analytics and advertising data are retained only as long as necessary for the purposes outlined above.
 
 ### 6 . Contact Us
-If you have questions, email: **support@monkeymaze.app**
+If you have questions, email: **steverioux68@gmail.com**
 
 ---
 
@@ -66,4 +66,4 @@ L'Appli **ne s'adresse pas aux enfants de moins de 13 ans**. Si vous êtes paren
 Les données analytiques et publicitaires sont conservées seulement le temps nécessaire aux fins décrites ci-dessus.
 
 ### 6 . Nous joindre
-Questions ? Écrivez-nous à : **support@monkeymaze.app** 
+Questions ? Écrivez-nous à : **steverioux68@gmail.com** 
